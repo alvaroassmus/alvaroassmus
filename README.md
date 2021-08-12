@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @alvaroassmus
 - 👀 I’m interested in learning alot
-- 🌱 I’m currently learning react
-- 💞️ I’m looking to collaborate on react projects
+- 🌱 I’m currently coding alot!!!
+- 💞️ I’m looking to learn alot!!!
 - 📫 alvaroassmus@gmail.com
 
 <!---
