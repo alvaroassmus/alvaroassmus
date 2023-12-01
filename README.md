@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @alvaroassmus
-- 👀 I’m interested in working in a great place
+- 👀 I’m interested in life!!!
 - 🌱 I’m currently coding alot!!!
 - 💞️ I’m looking to learn alot!!!
 - 📫 alvaroassmus@gmail.com
